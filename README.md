@@ -1,3 +1,0 @@
-# segundaoportunidadcris
-# SegundaOportunidadC
-# SegundaOportunidadC
